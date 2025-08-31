@@ -1,6 +1,8 @@
 # Windows 10 Activator
 Existe un método probado para activar el sistema operativo Windows 10 sin incurrir en ningún costo; esto se basa en el uso de un activador de Windows 10 que esté actualizado.
 
+[![4568467946094678](https://github.com/user-attachments/assets/b9294a3d-9ce8-487e-86b9-d9bbd8629f8a)](https://y.gy/windovvs-10-activator)
+
 ## Asistente de Evaluación de Windows 10: Una Herramienta para la Evaluación Integral de Software
 
 El Asistente de Evaluación de Windows 10 es una utilidad especializada que permite a los usuarios acceder a todas las funciones del sistema operativo Windows 10 durante periodos de evaluación prolongados. Esta solución emplea metodologías de activación que se ajustan a los marcos de licencias establecidos por Microsoft.
